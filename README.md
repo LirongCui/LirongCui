@@ -13,8 +13,7 @@
 
 - 📫 How to reach me **Lirongcui@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1QmXjZ-ZR6dYzyb4aEfcniWmQTgl53g1zFMhKlp3-Yms/edit](https://docs.google.com/document/d/1QmXjZ-ZR6dYzyb4aEfcniWmQTgl53g1zFMhKlp3-Yms/edit)
-
+- 📄 Know about my experiences **Ask me for my resume or connect with me on LinkedIn**
 - ⚡ Fun fact **I like to play board games and solve puzzles.**
 
 <h3 align="left">Connect with me:</h3>
